@@ -8,7 +8,7 @@ This is a room to discuss topics related to dating, love, and human sexuality fr
 
 Covering the issues of love, sexuality, and dating from this perspective means that this room aims to be as nonjudgmental as possible towards individual lifestyle practices and choices. It was envisioned as a safe place to discuss niche forms of sexuality from this perspective, and to offer general advice on more mainstream topics relating to the aforementioned parts of this room's title.
 
-Some disagreements over what constitutes acceptable sexual practices are inevitable, and we ask that individuals choosing to partake of this conversation operate on a policy of "your kink is not my kink, but your kink is okay" should disagreements arise.
+Some disagreements over what constitutes acceptable sexual practices are inevitable, and we ask that individuals choosing to partake of this conversation operate on a policy of "your kink is not my kink, but your kink is okay", should disagreements arise.
 
 That said, practices deemed to be blatantly unsafe are frowned upon.
 
