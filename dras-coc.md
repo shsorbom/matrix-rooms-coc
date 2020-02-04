@@ -17,6 +17,7 @@ Please be conscientious of the fact that this room is open to the public, and ma
 ## The Rules
 1. No ad hominem attacks against any individuals participating in room discussions.
 2. No posting of pornographic media within the room. Violators will be immediately banned with extreme prejudice.
+1. Do not ask if anyone is below 18. 
 3. All participants in this room must be above the age of majority in their respective countries. (See "age of consent" section below).
 4. Harassment of any room participants shall not be tolerated, either in public or through direct message. Individuals found to be engaging in harassment shall be immediately banned.
 5. Solicitation for sex shall not be tolerated.
@@ -32,7 +33,7 @@ Please be conscientious of the fact that this room is open to the public, and ma
 * use of violence or coercion
 
 ## Age of Consent 
-This room operates on an honor system. If you are here, it is assumed that you are above the age of majority in your country of origin. Many of the topics discussed in this room are considered not suitable for minors. In the United States, age of consent varies according to state, but the general consensus is 18 years of age or older.
+This room operates on an honor system. If you are here, it is assumed that you areat or above above 18 years of age. Many of the topics discussed in this room are considered not suitable for minors. In the United States, age of consent varies according to state, but the general consensus is 18 years of age or older.
 
 ## Conclusion
 Hopefully, this document will not need to be invoked very often. The quality of the matrix room is only as good as its users, so be respectful, be mindful, and "stay curious" (to quote clinical sexologist, Dr. Lindsey Doe).
