@@ -33,7 +33,7 @@ Please be conscientious of the fact that this room is open to the public, and ma
 * use of violence or coercion
 
 ## Age of Consent 
-This room operates on an honor system. If you are here, it is assumed that you areat or above above 18 years of age. Many of the topics discussed in this room are considered not suitable for minors. In the United States, age of consent varies according to state, but the general consensus is 18 years of age or older.
+This room operates on an honor system. If you are here, it is assumed that you are at or above above 18 years of age. Many of the topics discussed in this room are considered not suitable for minors. In the United States, age of consent varies according to state, but the general consensus is 18 years of age or older.
 
 ## Conclusion
 Hopefully, this document will not need to be invoked very often. The quality of the matrix room is only as good as its users, so be respectful, be mindful, and "stay curious" (to quote clinical sexologist, Dr. Lindsey Doe).
