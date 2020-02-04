@@ -17,8 +17,8 @@ Please be conscientious of the fact that this room is open to the public, and ma
 ## The Rules
 1. No ad hominem attacks against any individuals participating in room discussions.
 2. No posting of pornographic media within the room. Violators will be immediately banned with extreme prejudice.
-1. Do not ask if anyone is below 18. 
-3. All participants in this room must be above the age of majority in their respective countries. (See "age of consent" section below).
+1. No participant shall ask if anyone is below 18 (unless it is for moderation purposes). 
+3. All participants in this room must be 18 years of age or older.
 4. Harassment of any room participants shall not be tolerated, either in public or through direct message. Individuals found to be engaging in harassment shall be immediately banned.
 5. Solicitation for sex shall not be tolerated.
 6. Advertisement, and/or product placement is considered spam and not allowed.
